@@ -1,5 +1,5 @@
 # mann!
-[octocat](https://github.com/user-attachments/assets/ed6282b2-3020-4adf-9e04-3c77b816d04c)
+![resizedoctocat](https://github.com/user-attachments/assets/32d85e72-2f55-4090-a806-e54c515c82d5)
 
 -Hi, I'm @mannr25\
 -I'm a student at WHS\
